@@ -18,7 +18,7 @@ High Calling Cockers heeft een Blogspot dat nog actief was tot zeker oktober 201
 
 a. Wat we zien | **b. Onze suggestie**
 
-![Website](website.png)
+![Website](Home/Pictures/website.png)
 
 
 1a. Elke pagina heeft een compleet andere achtergrondkleur en/of patroon en hebben geen connectie met elkaar\
