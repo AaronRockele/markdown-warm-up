@@ -36,11 +36,10 @@ High Calling Cockers heeft een Blogspot dat nog actief was tot zeker oktober 201
 
 ### Wat kan beter?
 
-a. Wat we zien\
-**b. Onze suggestie**
+a. Wat we zien|**b. Onze suggestie**
 
 1a. Elke pagina heeft een compleet andere achtergrondkleur en/of patroon en hebben geen connectie met elkaar\
-**2b. De verschillende pagina's moeten niet allemaal hetzelfde zijn maar kunnen best uit hetzelfde palet komen.**
+**2b. De verschillende pagina's moeten niet allemaal hetzelfde zijn maar kunnen best uit hetzelfde kleurpalet komen.**
 
 2a. De lettertypes hebben veranderen per pagina en zelfs op dezelfde pagina vind je verschillende lettertypes.\
 **2b. Eén neutrale lettertype voor de volledige website, de titels *moeten* niet hetzelfde zijn als die van de body maar moeten wel complimentair zijn.**
