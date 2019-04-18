@@ -36,7 +36,7 @@ High Calling Cockers heeft een Blogspot dat nog actief was tot zeker oktober 201
 
 ### Wat kan beter?
 
-a. Wat we zien|**b. Onze suggestie**
+a. Wat we zien | **b. Onze suggestie**
 
 1a. Elke pagina heeft een compleet andere achtergrondkleur en/of patroon en hebben geen connectie met elkaar\
 **2b. De verschillende pagina's moeten niet allemaal hetzelfde zijn maar kunnen best uit hetzelfde kleurpalet komen.**
