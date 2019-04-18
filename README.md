@@ -6,34 +6,16 @@
 
 ## High Calling Cockers
 http://highcallingcockers.com/index.html
-
-
-
 ### Wie?
 High Calling Cockers is een website over een dame dat gepassioneerd is in het fokken van Cockers Spanials en deze dan ook te verkopen.
-
-
-
 ### Updates?
 Het is onduidelijk wanneer de website laatst nog eens is geüpdate maar toen de pagina nog zeer actief was werd deze zeker regelmatig gebruikt.
-
-
-
 ### Hoe zijn we op de site gekomen?
 Google: crappy websites
-
-
-
 ### Makeover?
 De website kan best een volledige makeover krijgen. De achtergronden, foto's, lettertype's, titels en body moeten allemaal aangepast worden omdat de website niet goed leesbaar is, het duurt ook "lang" voordat elke pagina geladen is.
-
-
-
 ### Social Media?
 High Calling Cockers heeft een Blogspot dat nog actief was tot zeker oktober 2018 met updates van tevreden klanten van de eigenares van de website
-
-
-
 ### Wat kan beter?
 
 a. Wat we zien | **b. Onze suggestie**
