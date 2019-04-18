@@ -32,21 +32,18 @@ High Calling Cockers heeft een Blogspot dat nog actief was tot zeker oktober 201
 
 
 ### Wat kan beter?
-
-a. Wat we zien
-**b. Onze suggestie**
-
-
-1a. Elke pagina heeft een compleet andere achtergrondkleur en/of patroon en hebben geen connectie met elkaar
-**2b. De verschillende pagina's moeten niet allemaal hetzelfde zijn maar kunnen best uit hetzelfde palet komen.**
-
-
-2a. De lettertypes hebben veranderen per pagina en zelfs op dezelfde pagina vind je verschillende lettertypes.
-**2b. Eén neutrale lettertype voor de volledige website, de titels *moeten* niet hetzelfde zijn als die van de body maar moeten wel complimentair zijn.**
-
-
-3a. De foto's zijn zeer arbitrair geplaatst, zijn slecht opgemaakt en hebben geen goede kwaliteit.
-**3b. De foto's beter en gerichter op de website plaatsen, alle foto's een andere opmaak geven (lees: witte mistrand weg etc), alleen kwaliteitsvolle foto's op de website plaatsen.**
+>
+>a. Wat we zien
+>**b. Onze suggestie**
+>
+>1a. Elke pagina heeft een compleet andere achtergrondkleur en/of patroon en hebben geen connectie met elkaar
+>**2b. De verschillende pagina's moeten niet allemaal hetzelfde zijn maar kunnen best uit hetzelfde palet komen.**
+>
+>2a. De lettertypes hebben veranderen per pagina en zelfs op dezelfde pagina vind je verschillende lettertypes.
+>**2b. Eén neutrale lettertype voor de volledige website, de titels *moeten* niet hetzelfde zijn als die van de body maar moeten wel complimentair zijn.**
+>
+>3a. De foto's zijn zeer arbitrair geplaatst, zijn slecht opgemaakt en hebben geen goede kwaliteit.
+>**3b. De foto's beter en gerichter op de website plaatsen, alle foto's een andere opmaak geven (lees: witte mistrand weg etc), alleen kwaliteitsvolle foto's op de website plaatsen.**
 
 
 
